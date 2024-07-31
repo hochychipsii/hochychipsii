@@ -31,7 +31,9 @@
  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ `⸜(｡˃ ᵕ ˂ )⸝♡`
  
  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ***люблю алену!***
-   ㅤㅤㅤ       ㅤㅤㅤ       ㅤㅤㅤ        ㅤ    ㅤㅤㅤ       ㅤㅤㅤ       ㅤㅤㅤ ㅤㅤㅤ       ㅤㅤ ㅤㅤㅤ   ㅤㅤㅤ ㅤㅤㅤ                               ㅤ![dae36a74337de05e249ce5afcec907c1 (1)](https://github.com/xgalswees/xgalswees/assets/166125649/f463ec63-9b40-49a1-932e-fc83aac2b3a7)
+<p align="center">ㅤㅤㅤ       ㅤㅤㅤ       ㅤㅤㅤ        ㅤ    ㅤㅤㅤ       ㅤㅤㅤ       ㅤㅤㅤ ㅤㅤㅤ       ㅤㅤ ㅤㅤㅤ   ㅤㅤㅤ ㅤㅤㅤ                               ㅤ
+<img src=https://github.com/user-attachments/assets/4ec415ce-587a-46f9-ae35-b3423a4b33de alt="animated" />
+</p>
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 
