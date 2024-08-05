@@ -1,4 +1,4 @@
-ЛЮБОЙ, КТО ЗАЙДЕТ СЮДА И ПРОЧИТАЕТ ЭТУ НАДПИСЬ ОБЯЗАН НАПИСАТЬ МНЕ В ВИСПЕР КАКИЕ ЖЕ ПАСФЕИ КРАСИВЫЕ
+ЛЮБОЙ КТО ЗАЙДЕТ СЮДА И ПРОЧИТАЕТ ЭТУ НАДПИСЬ ОБЯЗАН НАПИСАТЬ МНЕ В ВИСПЕР КАКИЕ ЖЕ ПАСФЕИ КРАСИВЫЕ
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![c0b824e8a635ffe2025311450bc6b64e](https://github.com/xgalswees/xgalswees/assets/166125649/ce80d11c-1935-4ed7-b610-6fccdcc52913)
 ㅤㅤㅤㅤㅤㅤ ㅤ
 ![wow-comic](https://github.com/xgalswees/xgalswees/assets/166125649/129e8d87-126f-4ae7-836e-9805745c673f)![9256164d0b21fb0512c354f9f3b27d67 (1)](https://github.com/xgalswees/xgalswees/assets/166125649/5a93a273-bc43-4d33-ae87-c3b9bff408e1)![5a105381eed609b127ec423c337f64e3 (1)](https://github.com/xgalswees/xgalswees/assets/166125649/dfaf961b-4f8e-4e35-bd0f-cd028fe8c2d3)
